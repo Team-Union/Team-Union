@@ -1,2 +1,2 @@
-# Team-Union
-We Are One
+# Team Union
+We Are ONE
